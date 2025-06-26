@@ -28,7 +28,7 @@
 
 点击访问：<a href="https://heiliao928.pages.dev/">黑料大事记</a>
 
-点击访问：<a href="https://heiliao562.pages.dev/">黑料大事记</a>
+点击访问：<a href="https://hl-91.pages.dev/">社区黑料网</a>
 
 点击访问：<a href="https://guochan58.pages.dev/">久久久国产视频</a>
 
