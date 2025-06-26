@@ -30,7 +30,7 @@
 
 点击访问：<a href="https://heiliao562.pages.dev/">黑料大事记</a>
 
-点击访问：<a href="https://heiliao623.pages.dev/">黑料不打烊</a>
+点击访问：<a href="https://guochan58.pages.dev/">久久久国产视频</a>
 
 点击访问：<a href="https://heiliao518.pages.dev/">黑料吃瓜</a>
 
