@@ -26,7 +26,7 @@
 
 点击访问：<a href="https://hj-291.pages.dev/">访问入口</a>
 
-点击访问：<a href="http://heiliao5626.pages.dev/">黑料网</a>
+点击访问：<a href="https://heiliao928.pages.dev/">黑料大事记</a>
 
 点击访问：<a href="https://heiliao562.pages.dev/">黑料大事记</a>
 
